@@ -1,6 +1,6 @@
 Olá, sinta-se à vontade a tirar dúvidas, me chamo Pedro.
 
-👨‍💻 Pedro – Especialista em Instalação de Software e Gestão de Licenças
+Especialista em Instalação de Software e Gestão de Licenças
 
 📌 Sobre mim
 
